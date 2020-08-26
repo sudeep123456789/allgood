@@ -1,0 +1,2 @@
+# allgood
+after a bad
